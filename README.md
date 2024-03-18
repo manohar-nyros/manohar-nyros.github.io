@@ -1,1 +1,0 @@
-# manohar-nyros.github.io
